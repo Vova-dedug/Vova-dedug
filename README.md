@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning in 7-g class
 - 💞️ I’m looking to collaborate on N/A
-- 📫 How to reach me viruspro42636@gmail.com
+- 📫 How to reach me  viruspro42636@gmail.com
 - 😄 Pronouns: N/A
 - ⚡ Fun fact: ...
 
